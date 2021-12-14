@@ -5,8 +5,10 @@ Todo o material desta disciplina incluindo a programação e notificações impo
 Bons estudos e sucessos!
 
 ------------------------------------------------------------------------------------------------------
-**Aulas online** ---- Data: **14|12|2021** ---- Hora: **08:15 – 10:15 hrs**
+**Aulas online** 
 
-Aula#1: Conceitos Introdutorios Fundamentais: Funcoes (log. e exp.) e vectores
+**Data:** **14|12|2021** ---- Hora: **08:15 – 10:15 hrs**
+
+**Aula:** Conceitos Introdutorios Fundamentais: Funcoes (log. e exp.) e vectores
 
 Link da videochamada: https://meet.google.com/szb-vkht-bti
