@@ -9,7 +9,7 @@ Bons estudos e sucessos!
 
 **Data:** **13|01|2022** ---- Hora: **10:00 – 12:00 hrs**
 
-**Aula:** Introducao ao electromagnetismo - Cont.
+**Tema:** Introducao ao electromagnetismo - Cont.
 
 Link da videochamada: https://meet.google.com/hin-bhug-xkd
 
