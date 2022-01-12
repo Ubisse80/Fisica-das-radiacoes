@@ -7,8 +7,9 @@ Bons estudos e sucessos!
 ------------------------------------------------------------------------------------------------------
 **Aulas online** 
 
-**Data:** **14|12|2021** ---- Hora: **08:15 – 10:15 hrs**
+**Data:** **13|01|2022** ---- Hora: **10:00 – 12:00 hrs**
 
-**Aula:** Conceitos Introdutorios Fundamentais: Funcoes (log. e exp.) e vectores
+**Aula:** Introducao ao electromagnetismo - Cont.
 
-Link da videochamada: https://meet.google.com/szb-vkht-bti
+Link da videochamada: https://meet.google.com/hin-bhug-xkd
+
