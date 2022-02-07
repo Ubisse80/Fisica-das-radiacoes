@@ -5,11 +5,11 @@ Todo o material desta disciplina incluindo a programação e notificações impo
 Bons estudos e sucessos!
 
 ------------------------------------------------------------------------------------------------------
-**Aulas online** 
+**Aula Pratica online (Todos os grupos devem participar nesta aula !)** 
 
-**Data:** **13|01|2022** ---- Hora: **10:00 – 12:00 hrs**
+**Data:** **08|02|2022** ---- Hora: **08:00 – 10:00 hrs**
 
-**Tema:** Introducao ao electromagnetismo - Cont.
+**Tema:** AP#01_ Nocoes de Electromagnetismo
 
-Link da videochamada: https://meet.google.com/hin-bhug-xkd
+Link da videochamada: https://meet.google.com/baw-hfwi-nux
 
