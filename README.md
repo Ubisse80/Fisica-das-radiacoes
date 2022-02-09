@@ -5,11 +5,11 @@ Todo o material desta disciplina incluindo a programação e notificações impo
 Bons estudos e sucessos!
 
 ------------------------------------------------------------------------------------------------------
-**Aula Pratica online (Todos os grupos devem participar nesta aula !)** 
+**Aula Teorica online (Todos os grupos devem participar nesta aula !)** 
 
-**Data:** **08|02|2022** ---- Hora: **08:00 – 10:00 hrs**
+**Data:** **10|02|2022** ---- Hora: **10:00 – 12:00 hrs**
 
-**Tema:** AP#01_ Nocoes de Electromagnetismo
+**Tema:** AT#03: Introducao a Física Moderna
 
-Link da videochamada: https://meet.google.com/baw-hfwi-nux
+Link da videochamada: https://meet.google.com/gah-ctrc-vzk
 
