@@ -7,9 +7,8 @@ Bons estudos e sucessos!
 ------------------------------------------------------------------------------------------------------
 **Aula Teorica online (Todos os grupos devem participar nesta aula !)** 
 
-**Data:** **10|02|2022** ---- Hora: **10:00 – 12:00 hrs**
+**Data:** **15|02|2022** ---- Hora: **08:00 – 10:00 hrs**
 
-**Tema:** AT#03: Introducao a Física Moderna
+**Tema:** AT#03: Introducao a Física Moderna - Cont.
 
-Link da videochamada: https://meet.google.com/gah-ctrc-vzk
-
+Link da videochamada: https://meet.google.com/ufh-igdw-wfn
