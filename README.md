@@ -5,10 +5,14 @@ Todo o material desta disciplina incluindo a programação e notificações impo
 Bons estudos e sucessos!
 
 ------------------------------------------------------------------------------------------------------
-**Aula Teorica online (Todos os grupos devem participar nesta aula !)** 
+**Atenção estudantes !**
 
-**Data:** **15|02|2022** ---- Hora: **08:00 – 10:00 hrs**
+Amanhã , dia 17/02/2022, não teremos aulas. Porém, proponho as seguintes actividades:
 
-**Tema:** AT#03: Introducao a Física Moderna - Cont.
+> Rever a resolução de todos os exercícios da Ficha #1 (Vejam a resolução que fizemos juntos na Pasta de Aulas Práticas);
 
-Link da videochamada: https://meet.google.com/ufh-igdw-wfn
+> Saberem explicar o porquê de a luz ter um comportamento dual (onda-partícula);
+
+> Saberem explicar o efeito fotoeléctrico e porque é que se usa como evidência de a luz ser considerada como partícula;
+
+> Explicar o efeito Compton e a sua essência.
