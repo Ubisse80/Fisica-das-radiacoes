@@ -11,8 +11,8 @@ Amanhã , dia 17/02/2022, não teremos aulas. Porém, proponho as seguintes acti
 
 > Reverem a resolução de todos os exercícios da Ficha #1 (Vejam a resolução que fizemos juntos na Pasta de Aulas Práticas);
 
-> Saberem explicar o porquê de a luz ter um comportamento dual (onda-partícula);
+> Saberem explicar o porquê de a luz ter um comportamento dual (onda-partícula) e quais sao os exemplos que evidenciam isso;
 
-> Saberem explicar o efeito fotoeléctrico e porque é que se usa como evidência de a luz ser considerada como partícula;
+> Saberem explicar o efeito fotoeléctrico e porque é que se usa como evidência de que a luz  partícula;
 
 > Explicarem o efeito Compton e a sua essência.
