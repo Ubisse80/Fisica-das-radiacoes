@@ -7,6 +7,6 @@ Bons estudos e sucessos!
 ------------------------------------------------------------------------------------------------------
 **Atenção estudantes !**
 
-Amanhã , dia 22/02/2022 teremos aula presencial!
+A aula de amanhã, dia 03/03/2022 com o outro grupo comeca as **8:00** horas! (A pontualidade conta nas aulas praticas, pelo que, nenhum estudante sera permitido a entrar na sala depois das **8:05** hrs)
 
 
