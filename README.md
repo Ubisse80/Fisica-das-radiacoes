@@ -7,6 +7,13 @@ Bons estudos e sucessos!
 ------------------------------------------------------------------------------------------------------
 **Atenção estudantes !**
 
-A aula de amanhã, dia 03/03/2022 com o outro grupo, comeca as **8:00** horas! (A pontualidade conta nas aulas praticas, pelo que, nenhum estudante sera permitido a entrar na sala depois das **8:05** hrs)
+>> **Aula online**
+
+>> **Tema:** Radioactividade
+
+>> **Data:** 08/03/2022        **Hora:** 08:00 – 10:00 Hrs
+
+>> **Link da videochamada:**  https://meet.google.com/wcv-xccz-xde
+
 
 
