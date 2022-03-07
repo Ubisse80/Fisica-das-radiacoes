@@ -7,13 +7,13 @@ Bons estudos e sucessos!
 ------------------------------------------------------------------------------------------------------
 **Atenção estudantes !**
 
->> **Aula online**
+> **Aula online**
 
->> **Tema:** Radioactividade
+> **Tema:** Radioactividade
 
->> **Data:** 08/03/2022        **Hora:** 08:00 – 10:00 Hrs
+> **Data:** 08/03/2022        **Hora:** 08:00 – 10:00 Hrs
 
->> **Link da videochamada:**  https://meet.google.com/wcv-xccz-xde
+> **Link da videochamada:**  https://meet.google.com/wcv-xccz-xde
 
 
 
