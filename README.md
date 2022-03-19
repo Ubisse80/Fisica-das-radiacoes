@@ -7,13 +7,9 @@ Bons estudos e sucessos!
 ------------------------------------------------------------------------------------------------------
 **Atenção estudantes !**
 
-> **Aula online**
+> AP#3: Radioactividade ja esta desponivel! 
 
-> **Tema:** Radioactividade
-
-> **Data:** 08/03/2022        **Hora:** 08:00 – 10:00 Hrs
-
-> **Link da videochamada:**  https://meet.google.com/wcv-xccz-xde
+> Comecem a resolver e apresentem dúvidas na terça-feira, dia 22/03/2022
 
 
 
