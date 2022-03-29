@@ -17,7 +17,7 @@ Bons estudos e sucessos!
 
 **Tarefas:**
 
-> Cada estudante deve  resover a AP#3 e entregar na 5-feira, dia  31/03/2022. No dia 05/04/2022, vai-se avaliar o nível de envolvimento de cada estudante na resolução dos exercícios da AP#3, pelo que, é necessário que cada estudante seja membro activo na resolução dos exercícios.
+> Cada estudante deve  resolver a AP#3 e entregar na 5-feira, dia  31/03/2022. No dia 05/04/2022, vai-se avaliar o nível de envolvimento de cada estudante na resolução dos exercícios da AP#3, pelo que, é necessário que cada estudante seja membro activo na resolução dos exercícios.
 
 
 
