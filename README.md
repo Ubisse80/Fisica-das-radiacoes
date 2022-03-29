@@ -5,11 +5,20 @@ Todo o material desta disciplina incluindo a programação e notificações impo
 Bons estudos e sucessos!
 
 ------------------------------------------------------------------------------------------------------
-**Atenção estudantes !**
+**Atualização da agenda de aulas**
 
-> AP#3: Radioactividade ja esta desponivel! 
+> 31/03/2022 – (Mini-teste nos primeiros 15 minutos) & AT#5: Feixes de Radiação
 
-> Comecem a resolver e apresentem dúvidas na terça-feira, dia 22/03/2022
+> 05/04/2022 –Conclusão da discussão da AP#03 & Preparação para Teste-II
+
+> 12/04/2022 – Realização do Teste-II
+
+> 15/04/2022 – Correcção e entrega do Teste-II & Divulgação da Nota de Frequência
+
+**Tarefas:**
+
+> Cada estudante deve  resover a AP#3 e entregar na 5-feira, dia  31/03/2022. No dia 05/04/2022, vai-se avaliar o nível de envolvimento de cada estudante na resolução dos exercícios da AP#3, pelo que, é necessário que cada estudante seja membro activo na resolução dos exercícios.
+
 
 
 
