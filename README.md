@@ -20,6 +20,14 @@ Bons estudos e sucessos!
 > Cada estudante deve  resolver a AP#3 e entregar na 5-feira, dia  31/03/2022. No dia 05/04/2022, vai-se avaliar o nível de envolvimento de cada estudante na resolução dos exercícios da AP#3, pelo que, é necessário que cada estudante seja membro activo na resolução dos exercícios.
 
 
+**Link para aula de hoje**
+
+> preparacao para teste-II
+
+> Segunda-feira, 11 de abril · 14:30 – 15:30
+
+> Link da videochamada: https://meet.google.com/jvp-wzjh-kdg
+
 
 **Link para livros**
 
