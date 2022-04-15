@@ -15,19 +15,11 @@ Bons estudos e sucessos!
 
 > 15/04/2022 – Correcção e entrega do Teste-II & Divulgação da Nota de Frequência
 
-**Tarefas:**
+**link para submissao de trabalho**
 
-> Cada estudante deve  resolver a AP#3 e entregar na 5-feira, dia  31/03/2022. No dia 05/04/2022, vai-se avaliar o nível de envolvimento de cada estudante na resolução dos exercícios da AP#3, pelo que, é necessário que cada estudante seja membro activo na resolução dos exercícios.
+> Arrastem os vossos trabalhos para esta pasta e nao tente modificar nada. 
 
-
-**Link para aula de hoje**
-
-> preparacao para teste-II
-
-> Segunda-feira, 11 de abril · 14:30 – 15:30
-
-> Link da videochamada: https://meet.google.com/jvp-wzjh-kdg
-
+> https://drive.google.com/drive/folders/1VbNKnM-e8aMmc9ijyfyZsExsbBlntyJi?usp=sharing
 
 **Link para livros**
 
