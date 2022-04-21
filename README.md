@@ -16,6 +16,11 @@ Bons estudos e sucessos!
 > 15/04/2022 – Correcção e entrega do Teste-II & Divulgação da Nota de Frequência
 
 ----------------------------------------------------------------------------------------------------------
+**link para hoje** 21/4/2022. 11:30 - 12:30
+
+> Link da videochamada: https://meet.google.com/dgq-moup-gzz
+
+------------------------------------------------------------------------------------------------------
 **link para submissao de trabalho**
 
 > Arrastem os vossos trabalhos para esta pasta e nao tente modificar nada. 
